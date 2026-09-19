@@ -1,0 +1,1 @@
+like i dont have any idea what is this readme file but i am creating this file to let you guys(if there is someone) that this is my github account and i am posting the solutions of the problems that i am solving.
